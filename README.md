@@ -1,1 +1,1 @@
-# Alice_Project_1.0
+# the Alice Project 1.0  
